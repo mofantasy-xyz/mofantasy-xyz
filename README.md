@@ -1,0 +1,2 @@
+# mofantasy-xyz
+Index
